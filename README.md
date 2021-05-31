@@ -1,1 +1,1 @@
-# dayidecha..github.io
+# dayidecha.github.io
